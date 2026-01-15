@@ -24,3 +24,15 @@ In a multipolar system, resilience is not achieved through isolation or rigid ne
 For middle powers, strategic resilience is particularly critical. Their influence does not derive from overwhelming material power, but from their ability to maneuver within systemic constraints. As such, strategic resilience provides a more precise analytical lens than traditional balance-of-power frameworks for assessing state behavior in a multipolar era.
 
 By employing strategic resilience as a core concept, this research moves beyond static assessments of power and toward a dynamic understanding of how states sustain relevance, autonomy, and influence under conditions of systemic complexity.
+Policy Implications: Strengthening Indonesia’s Strategic Resilience
+The conceptualization of strategic resilience as a state’s capacity for endurance, autonomy, and adaptation carries direct implications for Indonesia’s foreign policy orientation in a multipolar international system. Rather than prioritizing dominance or rigid alignment, Indonesia’s strategic posture should emphasize calibrated engagement and long-term flexibility.
+
+First, Indonesia should institutionalize strategic autonomy through diversified partnerships. In a multipolar environment, resilience is enhanced by avoiding excessive dependence on any single power center. Indonesia’s foreign policy should therefore continue to expand issue-based cooperation across multiple strategic partners while preserving independent decision-making authority.
+
+Second, sovereign resilience must be reinforced through diplomatic consistency and normative positioning. Indonesia’s ability to withstand external pressure depends on the credibility and coherence of its diplomatic narratives, particularly regarding sovereignty, non-alignment, and international law. Clear articulation of these principles strengthens Indonesia’s bargaining position in global and regional forums.
+
+Third, Indonesia should prioritize adaptive diplomacy as a core policy instrument. Strategic resilience requires institutional flexibility, rapid policy recalibration, and diplomatic agility. This includes empowering diplomatic missions, enhancing strategic foresight capabilities, and integrating geopolitical risk assessment into foreign policy planning.
+
+Fourth, multilateral and regional engagement should be leveraged as resilience multipliers. Active participation in ASEAN, the G20, and other multilateral frameworks enables Indonesia to distribute strategic risk, amplify diplomatic influence, and mitigate systemic uncertainty inherent in multipolar competition.
+
+Finally, strategic resilience should be embedded as a long-term policy framework rather than a reactive posture. This entails aligning foreign policy planning, defense diplomacy, and economic statecraft under a coherent strategic vision that recognizes multipolarity as a durable condition of the international system.
